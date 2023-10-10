@@ -7,6 +7,7 @@ CODINGANNYA
 ![image](https://github.com/CynranF/posttest2_Farhan/assets/144854406/5944a5de-1d6b-49a0-95b1-de0c0f89be6a)
 
 HASIL PROGRAM
+![image](https://github.com/CynranF/posttest2_Farhan/assets/144854406/eade81dc-0f2a-45d5-9eb5-cac1b59167e4)
 
 
 
